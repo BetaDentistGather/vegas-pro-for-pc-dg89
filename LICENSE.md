@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Vegas Pro for PC | Vegas Pro for Windows template with top Vegas Pro for PC | Vegas Pro for Windows Template | video-stabilization + AI-enhanced-editing.
 
 
 
